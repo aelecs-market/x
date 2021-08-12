@@ -1,1 +1,10 @@
-# x
+# AELECS MARKET
+
+## WELCOME
+
+### GET AEP'S BY LUCK AT:
+#### https://bit.ly/Aelecs-Market/
+
+# What Is AEP'S LUCK ?
+## AEPS LUCK IS USED TO GET FOR FREE IF YOUR LUCK IN AMAZING YOU GET ALOT OF AEPS
+### Try It Out Now!!
